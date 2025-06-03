@@ -1,1 +1,2 @@
-![](https://github.com/ghostbusterbob1/GD1.4-STEM-1/blob/main/ezgif-4693aa984cb431.gif)
+
+![reactietimer](https://github.com/user-attachments/assets/2dd2e8e4-f439-4421-a9f3-3bee94a9302b)
